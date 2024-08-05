@@ -19,6 +19,20 @@ Another area where the copper industry faces challenges is in capturing the lead
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 **Solution**
 
 
